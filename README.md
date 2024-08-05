@@ -1,0 +1,2 @@
+# fun-projek-games
+random
